@@ -2,7 +2,7 @@
 - 👀 I’m interested in Mathematics and Data Science
 - 🌱 I’m currently learning DSA with C++
 - 💞️ I’m looking to collaborate on ...(have no idea what to do)
-- 📫 How to reach me ... Email - mamtazulmumin85@gmail.com
+- 📫 How to reach me ... Email - mamtazulmumin85@gmail.com , LinkedIN - www.linkedin.com/in/mamtazul-mumin-laskar-9830b5298
 - 😄 Pronouns: ... He, Him, His
 - ⚡ Fun fact: ...(i will try to find it)
 
